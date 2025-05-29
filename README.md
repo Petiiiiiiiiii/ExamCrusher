@@ -1,3 +1,1 @@
-# ExamCrusher
-
-🤡
+# ExamCrusher 🤡
